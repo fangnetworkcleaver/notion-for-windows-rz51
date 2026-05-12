@@ -1,4 +1,4 @@
-# 
+# Notion for Windows professional Addon: cloud-sync & export-options is the best Notion for Windows addon, featuring cloud-sync and export-options. Powerful, efficient, and
 
 
 
